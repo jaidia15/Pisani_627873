@@ -1,0 +1,10 @@
+Feeney, J. A., & Noller, P. (1990). Attachment style as a predictor of adult romantic relationships. Journal of personality and Social Psychology, 58(2), 281.
+Wang, X., Xie, R., Ding, W., Jiang, M., Kayani, S., & Li, W. (2022). You Hurt Me, so I Hurt Myself and Others: How Does Childhood Emotional Maltreatment Affect Adolescent Violent Behavior and Suicidal Ideation? Journal of Interpersonal Violence, 37(23/24), NP22647-NP22672. https://doi.org/10.1177/08862605211072177
+Sloman, L., & Taylor, P. (2016). Impact of Child Maltreatment on Attachment and Social Rank Systems : Introducing an Integrated Theory. Trauma, Violence & Abuse, 17(2), 172–185.
+Beltrán, M. I., Dijkerman, H. C., & Keizer, A. (2020). Affective touch experiences across the lifespan: Development of the Tactile Biography questionnaire and the mediating role of attachment style. PLoS ONE, 15(10), 1–20.https://doi.org/10.1371/journal.pone.0241041
+Levy, K. N., Ellison, W. D., Scott, L. N., & Bernecker, S. L. (2011). Attachment style. Journal of Clinical Psychology, 67(2), 193-203.
+Myerson, J. T., Thomas, J. K., Rufino, K. A., Noor, N., & Patriquin, M. A. (2023). Relationship between parental attachment styles and suicide in adolescents and adults admitted to an inpatient psychiatric hospital. Journal of Affective Disorders, 341, 170–175. https://doi.org/10.1016/j.jad.2023.08.111
+Levy, M. B., & Davis, K. E. (1988). Lovestyles and Attachment Styles Compared: Their Relations to Each Other and to Various Relationship Characteristics. Journal of Social and Personal Relationships, 5(4), 439-471. https://doi.org/10.1177/0265407588054004
+Fraley, R. C., & Roisman, G. I. (2019). The development of adult attachment styles: four lessons. Current opinion in psychology, 25, 26-30.
+Selcuk, E., Zayas, V., & Hazan, C. (2010). Beyond satisfaction: The role of attachment in marital functioning. Journal of Family Theory & Review, 2(4), 258-279.
+Hatfield, E. L. A. I. N. E., & Rapson, R. L. (2010). Culture, attachment style, and romantic relationships. Attachment: Expanding the cultural connections, 227-242.
